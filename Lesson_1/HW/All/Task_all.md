@@ -1,1 +1,1 @@
-Hmmm.... Dinosaur!!!! home version.
+Hmmm.... Dinosaur!!!! A-A-A-A-A-A-A!!!!
